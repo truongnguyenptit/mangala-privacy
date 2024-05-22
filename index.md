@@ -41,6 +41,6 @@ Children
 We do not knowingly collect personal information from anyone under the age of 6, and no part of the Application is designed to attract anyone under the age of 6.
 
 Contacting Us
-Whether you’re a new or loyal customer, we’d like to stay connected and want to hear from you! If you have any questions about this Privacy Policy, please contact us at mangalacryptowallet@gmail.com@gmail.com.
+Whether you’re a new or loyal customer, we’d like to stay connected and want to hear from you! If you have any questions about this Privacy Policy, please contact us at mangalacryptowallet@gmail.com.
 
 This Privacy Policy is publicly available on our website and can be accessed by end users, Google, and Apple for review.
